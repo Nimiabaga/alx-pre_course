@@ -1,2 +1,2 @@
-My name is Julie Peters
+this git project wasn't easy tho.. but I'm happy for my progress
 
