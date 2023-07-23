@@ -1,2 +1,2 @@
-My name is Julie
+My name is Julie Peters
 
